@@ -1,1 +1,0 @@
-# gigpal.github.io
